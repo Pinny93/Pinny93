@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pinny93
-- 👀 I’m interested in c#
+- 👀 I’m interested in c# / .NET, AI and Electronic
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on Nothing
 - 📫 How to reach me:  
