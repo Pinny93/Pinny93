@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Nothing
 - 📫 How to reach me:  
     -> Send me a message  
-    -> MASTODON: @Pinny93@social.anoxinon.de  
+    -> MASTODON: [@Pinny93@social.anoxinon.de](https://social.anoxinon.de/@Pinny93)  
     -> Facebook: [johannes.pinzer](https://www.facebook.com/johannes.pinzer/)  
     -> Instagram: [johannes.pinzer](https://www.instagram.com/johannes.pinzer/)  
     -> TikTok: [@johannespinzer](https://www.tiktok.com/@johannespinzer)  
