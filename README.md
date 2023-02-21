@@ -9,7 +9,7 @@
     -> Instagram: [johannes.pinzer](https://www.instagram.com/johannes.pinzer/)  
     -> TikTok: [@johannespinzer](https://www.tiktok.com/@johannespinzer)  
     -> Xing: [Click HERE](https://www.xing.com/profile/Johannes_Pinzer3/cv)  
-    -> LinkedIn: [Click HERE](https://www.linkedin.com/in/johannes-pinzer-38629a266/)
+    -> LinkedIn: [Click HERE](https://www.linkedin.com/in/johannes-pinzer-38629a266/)  
     -> Twitter: https://twitter.com/Pinny93  
     
    
